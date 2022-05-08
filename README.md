@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @adilasofia
-- 👀 I’m interested in security
+- 👀 I’m interested in security and i know c++ . java script . 6...
 - 🌱 I’m currently security ...
 - 💞️ I’m looking to collaborate with any one to working cyber security 
 - 📫 How to reach me : cheak my instgram :  
